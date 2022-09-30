@@ -1,1 +1,1 @@
-my seconf repoo
+this is my game
